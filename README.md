@@ -1,1 +1,0 @@
-infosys maritime ai project
